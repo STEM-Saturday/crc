@@ -7,5 +7,5 @@ The Purpose is to produce energy from the steam that came out of the main holes 
 ## Team Members
 Allieu M.
 Fatmah H.
-Oluwakorede Dabiri
+Oluwakorede D.
 Daniel O.
